@@ -1,1 +1,0 @@
-# Eby-Gold-inv2
